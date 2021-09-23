@@ -1,2 +1,2 @@
 # Shahid-Zikria
-I am a student as well as a free lancer in upwork and fiverr
+I am a student as well as a freelancer in upwork and fiverr
